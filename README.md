@@ -1,2 +1,2 @@
-# stellamacdermott1.github.io
+# potato.github.io
 
